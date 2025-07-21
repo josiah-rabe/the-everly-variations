@@ -1,3 +1,4 @@
+
 ## Estimated Trip Time: 2:30 AM Escape to Arrival (Franklin's house)
 
 Assuming:
