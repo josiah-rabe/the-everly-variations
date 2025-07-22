@@ -32,7 +32,7 @@ He moved not one muscle, but it landed like a blow. In that fraction of a second
 
 It was a violin case, it's leather-textured metal black and worn around the edges.
 
-*Oh hi. I forgot you were there for a second,* Rowan thought to the case. It had been with him longer than most people had, the entire time carrying and protecting an instrument so mysterious and coveted that the couple sitting next to him would have picked a seat not so close if they knew even half of what it hid. 
+"*Oh hi. I forgot you were there for a second,*" Rowan thought to the case. It had been with him longer than most people had, the entire time carrying and protecting an instrument so mysterious and coveted that the couple sitting next to him would have picked a seat not so close if they knew even half of what it hid. 
 
 The pastor had moved on, oblivious, like the rest, to the mystery in the case, and was now pontificating on how “the Lord gives and takes away.” Rowan wasn’t listening. The sound of the downpour outside continued relentlessly. Accompanied by the creak of a door, it grew clearer for a moment, and, just as if the sequence had been played in reverse, the rhythmless tapping became muffled again. Rowan didn't turn to see who it was, but he straightened his posture and his eyes went wide in surprise. 
 
