@@ -72,9 +72,9 @@ There was a pause. Rowan reached into his back pocket and pulled out a crumpled 
 
 April stared at the note, her lips pressed tight. Rowan picked up the violin case carefully and turned away. He opened the car door, and climbed in, setting the case in the passenger seat. He buckled it in. April gave him an inquisitive look, which he just saw in the edge of his vision.
 
-His hands were shaking a little has a slid the key into the ignition. Not from the cold, nor the rain soaking through his suit, but rather from all the built up tension from that conversation he hadn't planned on having. As he turned the key, the engine turned over several times but refused to start. Rowan rolled his eyes, shook his head, and tried again. It started, sending a low shudder through the car. 
+His hands were shaking a little as he slid the key into the ignition. Not from the cold, nor the rain soaking through his suit, but rather from all the built up tension from that conversation he hadn't planned on having. As he turned the key, the engine turned over several times but refused to start. Rowan rolled his eyes, shook his head, and tried again. It started, sending a low shudder through the car. 
 
-He didn't look around and just pulled away from the gravel lot like it was enemy territory. The wipers squeaked across the windshield, smearing more than anything else. The Buick groaned uphill, feeling heavy with the rain and something else. 
+He didn't look back. Just pulled away from the gravel lot like it was enemy territory. The wipers squeaked across the windshield, smearing more than anything else. The Buick groaned uphill, feeling heavy with the rain and something else. 
 
 _She said it meant something to her. That she cared about Frank because I cared about him._
 
@@ -86,7 +86,7 @@ He felt something strange then. Not quite grief or anger, which he had gotten us
 
 _You have put me in the lowest pit, in the darkest depths._
 
-He didn’t know where the thought came from, but it fit. He didn't know who "you" was. It could have been April, the pastor, that lawyer guy, _what was his name. Ashland, that was his name._ It could even have been Frank, for up and dying on him.
+He didn’t know where the thought came from, but it fit. He didn't know who "you" was. It could have been April, the pastor, that lawyer guy, _what was his name. Ashland, that was his name._ It could've even been Frank, for going and dying on him.
 
 He turned sharply at the intersection, bald tires skidding on the wet pavement. He didn't care. 
 
@@ -140,11 +140,11 @@ He hesitated as the rain drummed against the window. His fingers played with the
 
 >"Don't know yet."
 
-He already did. It was obvious. He had to get his violin on the move and the upcoming legal scrutiny of everything around him would blow its cover. He also happened to be unable to do that single-handedly.
+He already did. It was obvious. He had to get his violin on the move since the upcoming legal scrutiny of everything around him would blow its cover. He also happened to be unable to do that single-handedly.
 
 ---
 
-She hung up first. Her last tether was snapped, quiet and final. The screen still glowed in her right hand, the cracked screen displaying the dialer. It suddenly felt radioactively traceable. And stupid. 
+She hung up first. The screen still glowed in her right hand, the cracked screen displaying the dialer. It suddenly felt radioactively traceable. And stupid. 
 
 She stared a second longer. Then, fast and deliberate, she hit the home button, dove into _Settings_, fingers flying. _Reset device. Erase all content. Confirm._ The phone paused, then went black. She shoved it under her pillow like a corpse, and it was gone. 
 
@@ -171,7 +171,7 @@ Then:
 - 20 feet of tightly coiled Paracord,
 - And finally, a canvas tote bag, folded flat.
   
-She slipped on a pair of black running shoes, (put on) !!BETTER WORD HERE!! her sturdy olive-green utility jacket, and hoisted the bag onto her shoulder. Stepping over to her dresser, she closed the looted drawers and picked up her necklace– a little owl charm on a thin, silver chain. It was the only piece of jewelry she owned, and the only thing from her mother that wasn't a Bitcoin wallet or secondhand. She put it on, the (latch?) clicking into place behind her neck like armor.
+She slipped on a pair of black running shoes, shrugged on her sturdy olive-green utility jacket, and hoisted the bag onto her shoulder. Stepping over to her dresser, she closed the looted drawers and picked up her necklace– an elegant little owl charm on a thin, silver chain. It was the only piece of jewelry she owned, and the only thing from her mother that wasn't a Bitcoin wallet or secondhand. She put it on, the clasp clicking into place behind her neck like armor.
 
 Then it began. She walked quietly over to the door and cracked it.
 
@@ -179,17 +179,17 @@ The hallway was beyond dim as she slid out like a breath, closing the door neatl
 
 _Don't squeak. Don't trip. Do not for anything stop._
 
-Every inch of the house felt different now, in that same way all spaces do when they are illuminated only by the lights of city night. She crept past room 4; Lena's. Then room 6. Then the admin office. She skirted the creaky third floorboard by instinct. She had previously been jealous that the boys could live upstairs with the dormers windows and the simple joy of living on the top floor. Now, however, she was immensely thankful that the first floor had easy access to the kitchen exit. 
+Every inch of the house felt different now, in the same way all spaces do when they are illuminated only by the lights of city night. She crept past room 4; Lena's. Then room 6. Then the admin office. She skirted the creaky third floorboard by instinct. She had previously been jealous that the boys could live upstairs with the dormers windows and the simple joy of living on the top floor. Now, however, she was immensely thankful that the first floor had easy access to the kitchen exit. 
 
-The fridge hummed omnipresently, as the clock on the microwave blinked 2:13 AM. The back door loomed like the end of a tunnel. She reached for the deadbolt. It clicked, and loudly. Too loudly.
+The fridge hummed omnipresently as the clock on the microwave blinked 2:13 AM. The back door loomed like the end of a tunnel. She reached for the deadbolt. It clicked, and loudly. Too loudly.
 
 She froze.
 
 Nothing.
 
-She exhaled and opened the door just enough to slip into the night. The air hit her like a slap, humid, with the faint smell of dew and asphalt. No one was outside. There were no cameras on this side of the building.
+She exhaled and opened the door just enough to slip into the night. The air hit her like a slap. It was humid, laced with the faint smell of dew and asphalt. No one was outside. There were no cameras on this side of the building.
 
-She stepped of the porch, the duffle bag bouncing across her back. She kept walking, and she wouldn't stop. Tomorrow morning, she would be someone else's missed role call to figure out.
+She stepped off the porch, the duffle bag bouncing across her back. She kept walking, and she wouldn't stop. Tomorrow morning, she would be someone else's missed role call to figure out.
 
 
 
