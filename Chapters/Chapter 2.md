@@ -16,7 +16,7 @@ Rowan's grip tightened around the key, still in the envelope. He was still silen
 
 He stepped back, letting the rain mist his glasses. Rowan clearly saw his eyes move quickly to the violin and back to the two teens standing there in the rain. He shook his head almost imperceptibly and turned to his car with his umbrella still in his left hand, keys in the other. Rowan did the same, stepping out from under the high arched doorway, keys in hand. 
 
-April followed into the washed-out grey of the gravel parking lot. She pulled her jacket collar up, crossing her arms tightly. No words yet. Rowan came at last to a mostly light blue Buick, with a crumpled front bumper, fading paint, and an abundance of rust. Straight out of the 90s, it looked like it hadn't aged too well. 
+April followed into the washed-out grey of the gravel parking lot. She pulled her jacket collar up, crossing her arms tightly. No words yet. Rowan came at last to a mostly light blue Buick, with a crumpled front bumper, fading paint, and an abundance of rust. Straight out of the '90s, it looked like it hadn't aged too well. 
 
 > "This it?" She asked, nodding slightly toward the car." 
 
@@ -30,7 +30,7 @@ April pulled her jacket tighter, though the water had already soaked through the
 
 > "First off, that was Franklin's brother, who _could_ have been my uncle. Second of all, you didn't even know Frank! Why did you care enough to come to his funeral in the first place?"
 
-> "'cause you knew him, and that matters."
+> "'Cause *you* knew him, and that matters."
 
 Rowan raised an eyebrow skeptically. 
 
@@ -154,52 +154,43 @@ Her duffle bag was already packed. It had been for days. "_Emergency-only,_" she
 
 Then:
 
-- Four complete outfits, each layered and mixable
+- Four complete outfits, each layered and mixable, along with 8 pairs of socks.
 - Knit gloves, a red beanie and scarf
-- Her well-loved dark-brown converse, and a fabric belt to match
+- Her well-loved tan Converse, and a fabric belt to match
 - Standard toiletries packed neatly in a clear travel pouch, along with a cloth laundry bag from the closet.
-- A black wallet with **$268 in small bills**, her nearly-expired learner’s permit, an expired zoo pass, and a bus transfer stub with half a smiley face drawn on it.
+- A black wallet with $268 in small bills, her nearly-expired learner’s permit, an expired zoo pass, and a bus transfer stub with half a smiley face drawn on it.
 - Paperback _Jane Eyre_, creased but clean
 - A sketchbook full of drawings, thoughts, and secrets, along with three ballpoint pens and a mechanical pencil with exactly 128 spare leads 
 - Folded road map with hand-drawn notations and loops
 - Small, battered Gideon Bible with a pressed violet at Psalm 88
 - Granola bars, peanut butter crackers, hotel-size Nutella, and 3 meal-replacement bars wrapped in a black bandana, plus water purification tablets that she stored in an old pill bottle
 - $34 in quarters, stored in old film canisters.
-- A collapsible camping spoon, pocketknife, canteen, and flashlight (with extra batteries, you could never be sure you wouldn't need extra batteries)
-- Mini sewing kit and a tight roll of duct tape
-- Space blanket, Bic lighter, double-bagged matches, and an emergency poncho folded into a snack-size Ziplock bag
+- A collapsible camping spoon, pocketknife, canteen, and flashlight (With extra batteries. You could never be sure you wouldn't need extra batteries)
+- A Mini sewing kit and a tight roll of duct tape
+- A pace blanket, Bic lighter, double-bagged matches, and an emergency poncho folded into a snack-size Ziplock bag
 - 20 feet of tightly coiled Paracord,
 - And finally, a canvas tote bag, folded flat.
   
 She slipped on a pair of black running shoes, shrugged on her sturdy olive-green utility jacket, and hoisted the bag onto her shoulder. Stepping over to her dresser, she closed the looted drawers and picked up her necklace– an elegant little owl charm on a thin, silver chain. It was the only piece of jewelry she owned, and the only thing from her mother that wasn't a Bitcoin wallet or secondhand. She put it on, the clasp clicking into place behind her neck like armor.
 
-Then it began. She walked quietly over to the door and cracked it.
+Almost without thinking, April slipped her hand into the right pocket of her jacket, where she kept that stupid little button. Smooth, silver and slightly dented, it had been Rowan’s. It popped off his coat the day they met and she'd picked it up. She told herself it didn’t mean anything. She also never left without it. 
+
+And so it began. She pressed her thumb against its surface for just a second, then walked quietly over to the door and cracked it.
 
 The hallway was beyond dim as she slid out like a breath, closing the door neatly behind her. 
 
 _Don't squeak. Don't trip. Do not for anything stop._
 
-Every inch of the house felt different now, in the same way all spaces do when they are illuminated only by the lights of city night. She crept past room 4; Lena's. Then room 6. Then the admin office. She skirted the creaky third floorboard by instinct. She had previously been jealous that the boys could live upstairs with the dormers windows and the simple joy of living on the top floor. Now, however, she was immensely thankful that the first floor had easy access to the kitchen exit. 
+Every inch of the house felt different now, in the same way all spaces do when they are illuminated only by the lights of city night. She crept past room 4. That was Lena's. Then room 6. Then the admin office. She skirted the creaky third floorboard by instinct. She had, previously, been jealous that the boys could live upstairs with the dormer windows and the simple joy of living on the top floor. Now, however, she was immensely thankful that the first floor had easy access to the kitchen exit. 
 
-The fridge hummed omnipresently as the clock on the microwave blinked 2:13 AM. The back door loomed like the end of a tunnel. She reached for the deadbolt. It clicked, and loudly. Too loudly.
+The fridge hummed omnipresently as the clock on the microwave glowed. 2:13 AM. The back door loomed like the end of a tunnel. She reached for the deadbolt. It clicked, and loudly. Too loudly.
 
 She froze.
 
 Nothing.
 
-She exhaled and opened the door just enough to slip into the night. The air hit her like a slap. It was humid, laced with the faint smell of dew and asphalt. No one was outside. There were no cameras on this side of the building.
+She exhaled and opened the door just enough to slip into the night. It was humid air, laced with the faint smell of dew and asphalt slapped her in the face. No one was outside. There were no cameras on this side of the building.
 
-She stepped off the porch, the duffle bag bouncing across her back. She kept walking, and she wouldn't stop. Tomorrow morning, she would be someone else's missed role call to figure out.
+She stepped off the porch, the duffel bag bouncing across her back. She kept walking, and she wouldn't stop. Later in the morning, when all the reasonable people were awake, she would be someone else's missed role call to figure out. 
 
-
-
-
-
-
-
-
-
-
-
-
-
+_Good luck with that_.
